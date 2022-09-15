@@ -1,2 +1,2 @@
-# JaCoxxx.github.io
-https://jacokwu.cn
+# vlarvlar.github.io
+https://tokenmyth.com
